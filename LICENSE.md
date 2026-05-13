@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu shenanigans like never before with rare Scripts for jujutsu shenanigans, the #1 Script. Includes custom skins and instant win for
 
 
 
